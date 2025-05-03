@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Some random thoughts which keeps running on your mind when its not busy or when its tired.
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+most of the thoughts come when you getup early than expected. Or sitting on the hot seat and you hve nothing to do as you did not bring the newspaper or your phone with you.
